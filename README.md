@@ -1,1 +1,1 @@
-# Kryvorotko
+# Kryvorotko - 1 zadanie
